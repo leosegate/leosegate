@@ -1,2 +1,2 @@
 - Cursando Sistemas de Informação na Unoeste
-- Trabalhando mas nao na área.
+- Aulixiar de Suporte TI I.
