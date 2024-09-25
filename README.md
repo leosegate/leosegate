@@ -1,2 +1,2 @@
 - Cursando Sistemas de Informação na Unoeste
-- Aulixiar de Suporte TI I.
+- Auxiliar de Suporte TI I.
